@@ -8,7 +8,7 @@
 
  # Chhaava Movie 2025: A Deep Dive Into the Upcoming Marathi Masterpiece
 
-The much-awaited *Chhaava* movie, set to hit theaters in 2025, is creating waves in the Marathi film industry. With a compelling storyline, incredible performances, and a strong cultural backdrop, this film promises to be a game-changer. Directed by the talented filmmaker *[Director's Name]*, *Chhaava* is expected to bring a fresh perspective to the Marathi cinema scene while highlighting themes of courage, identity, and historical significance..
+The much-awaited *Chhaava* movie, set to hit theaters in 2025, is creating waves in the Marathi film industry. With a compelling storyline, incredible performances, and a strong cultural backdrop, this film promises to be a game-changer. Directed by the talented filmmaker *[Director's Name]*, *Chhaava* is expected to bring a fresh perspective to the Marathi cinema scene while highlighting themes of courage, identity, and historical significance.
 
 ## A Glimpse of the Storyline:
 
